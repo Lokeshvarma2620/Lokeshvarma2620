@@ -1,6 +1,6 @@
 ### Hi my name lokesh 👋
 
-🔭 I’m currently working on : Northwest missouri state 
+🔭 I’m currently working on : Northwest missouri state university
 
 🌱 I’m currently learning : web apps
 
